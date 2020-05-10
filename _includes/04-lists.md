@@ -1,1 +1,3 @@
-Replace this with a list of your favorite things.
+1. Singer
+2. Teacher
+3. Mother
